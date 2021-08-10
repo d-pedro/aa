@@ -2,3 +2,4 @@
 ### [how to shift the label on the yandex map to the right by api](https://260store.com/__media__/js/netsoltrademark.php?d=askto.pro/question/how-to-shift-the-label-on-the-yandex-map-to-the-right-by-api)
 ### [Why does swiper loop duplicate slides without content?](http://400nllakeshore.org/__media__/js/netsoltrademark.php?d=askto.pro/question/why-does-swiper-loop-duplicate-slides-without-content)
 ### [Can you make a bot for clicking buttons?](http://1-800govoigt.com/__media__/js/netsoltrademark.php?d=askto.pro/question/Can-you-make-a-bot-for-clicking-buttons)
+### [How do I hide the standard arrows in swiperand make my arrows work?](http://cdetoolbox.com/__media__/js/netsoltrademark.php?d=askto.pro/question/How-do-I-hide-the-standard-arrows-in-swiper-and-make-my-arrows-work)
